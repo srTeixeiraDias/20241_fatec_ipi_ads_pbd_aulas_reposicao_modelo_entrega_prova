@@ -1,2 +1,2 @@
-Nomes dos integrantes completos e sem abreviações e seus RAS
-Somente serão considerados os integrantes que tiverem ingressado com, no máximo, 30 minutos de atraso
+KAYKY ANGULO DE FREITAS : 2040482213007
+SAMUEL TEIXEIRA DIAS : 2040482223042
